@@ -8,5 +8,5 @@
 
 
 Check out my [portfolio](https://github.com/izguenther6/Portfolio)  
+Check out my [website](https://izguenther6.github.io/)  
 Check out my [LinkedIn](https://www.linkedin.com/in/isaiah-guenther-b86221199/)  
-Check out my [website](https://izguenther6.github.io/)
