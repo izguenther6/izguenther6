@@ -1,6 +1,6 @@
 # Hello!
 
-🥼 Currently a Research Assistant at the [Cornell Soil & Water Lab](https://soilandwaterlab.cornell.edu/)
+🥼 Currently a Research Technician at the [Cornell Soil & Water Lab](https://soilandwaterlab.cornell.edu/)
 
 🎓 Recently graduated from Cornell University with a B.S. in Biological Engineering
 
