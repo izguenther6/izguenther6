@@ -8,4 +8,3 @@
 
 
 Check out my [portfolio](https://github.com/izguenther6/Portfolio)  
-Check out my [LinkedIn](https://www.linkedin.com/in/isaiah-guenther-b86221199/)  
