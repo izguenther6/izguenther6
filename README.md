@@ -1,8 +1,6 @@
 # 🌀✨🌳
 
-Budding biological engineer
-
-Passionate lover of nature
+Budding biological engineer, passionate lover of nature
 
 Focused on community empowerment & environmental justice
 
